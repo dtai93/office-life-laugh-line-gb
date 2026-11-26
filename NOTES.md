@@ -1,0 +1,6 @@
+Judge priority: first be an unmistakable office joke, then earn the nod with a real work observation; freshness and the turn beat polish, and tightness/originality follow.
+Most rivals will reach for reply-all, the email-that-should-have-been-a-meeting line, printer meltdowns, or Monday dread.
+Better angles: calendar bureaucracy that reproduces itself; corporate status/ownership language exposing who carries the risk; tiny process rituals with absurd consequences.
+Eight rewrites: D5, D8, D12, D19, D23, D24, D27, D29. The freshness screen cut D5 (metaphor-heavy) and D24 (focus-time gag); D19 was true but more aphorism than laugh.
+Final four: D8, D12, D23, D27. Every pair was considered in both label orders: D23 over D8 (same meeting truth, sharper consequence), D12, and D27; D8 over D12 and D27; D27 over D12. Against the strongest predicted cliche, “This meeting could've been an email,” all four finalists edged it in both orders; D23 had the clearest margin through specificity, freshness, and its final turn.
+Winner: “I declined a meeting; they scheduled a follow-up to discuss it. I accepted.” It keeps the office truth, escalation, and reversal in one breath; the final word supplies the joke.
